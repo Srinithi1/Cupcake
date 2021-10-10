@@ -1,0 +1,1 @@
+This cupcake recipe makes 24 basic cupcakes and is ideal for novice bakers as it only takes 15 minutes to prepare and uses 5 ingrdients.
